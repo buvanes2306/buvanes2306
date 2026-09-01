@@ -163,9 +163,9 @@ I'm particularly interested in understanding how AI systems can move from simple
 
 I'm interested in connecting with developers, researchers, AI enthusiasts, and people building interesting technology.
 
-📧 **Email:** [your-email@example.com](mailto:your-email@example.com)
+📧 **Email:** [buvanes2306@gmail.com](mailto:your-email@example.com)
 
-💼 **LinkedIn:** Add your LinkedIn
+💼 **LinkedIn:** https://www.linkedin.com/in/buvanes-eswaran-281646291/
 
 🌐 **Portfolio:** Coming soon
 
